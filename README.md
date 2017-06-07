@@ -2,6 +2,6 @@
 
 Mia Farrow
 
-Harrison Ford
+Tom Hanks
 
 Megan Fox
