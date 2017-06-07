@@ -5,5 +5,3 @@ Mia Farrow
 Harrison Johnson
 
 Megan Fox
-
-Daniel Radcliffe
